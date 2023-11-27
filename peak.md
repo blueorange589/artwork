@@ -24,7 +24,7 @@ insanlarin kendilerine "gardas biz toptan ütülüyo olmayalim" diye yedirememel
 
 gözün zaten görüyor, inanca ne gerek var onu anlamadim 😂😂 tesadufen olacak sey mi onundeki resim? (kafasi calisan cok guzel anlamistir inancin fonksiyonunu 😉)
 
-uzaydan mı geldi lan bu şeytan 😂😂 
+uzaydan mı geldi lan bu şeytan 😂😂 evet. miknatis nasil calisir, bilen bilir
 yaa elin oglu ne icatlar yapiyor sevgili amariga
 
 bu dunyada gunyuzu gormediniz oyle soyleyeyim. ennn zengininiz dahil
