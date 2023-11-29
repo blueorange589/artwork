@@ -30,3 +30,17 @@ yaa elin oglu ne icatlar yapiyor sevgili amariga
 evet. miknatis nasil calisir, bilen bilir
 
 bu dunyada gunyuzu gormediniz oyle soyleyeyim. ennn zengininiz dahil
+
+---------
+oyle iste. herkes para saymaya, ego tatminine yasamiyor 20 sene sonra olecegi hayati. acele dukkan kapatir gibi yasarsaniz, ceker alirlar altinizdan hayati. ustune cennet kurarlar.
+
+bu konu bireyle alakali bir konu. felsefi ve tarihsel bir konu. siyaseti, gunluk siyaseti falan asan bir konu.
+
+
+tum dunya: "evimi dikip, havami atip, acele gidiyoruz bu diyardan"
+
+bak kaldi orda, nereye koyacam bu 3 milyar adami diye 😂😂
+
+kiymet verecek 1-kendin 2-hayat
+
+baska hicbisi yok zaten. tum dunya da bu ikisini silmis, tam gun mesailerde, zorunlu egitimlerde.... enteresan dimi ☺
