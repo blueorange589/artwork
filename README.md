@@ -5,3 +5,5 @@ what is wealth? (zeus uses word prosperity :D)
 
 
 yaşam nedir? hayat nedir? arasındaki fark nedir?
+
+evet, aslinda surekli olarak gelecek degisiyor. hep boyleydi.
