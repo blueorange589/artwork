@@ -44,3 +44,5 @@ bak kaldi orda, nereye koyacam bu 3 milyar adami diye 😂😂
 kiymet verecek 1-kendin 2-hayat
 
 baska hicbisi yok zaten. tum dunya da bu ikisini silmis, tam gun mesailerde, zorunlu egitimlerde.... enteresan dimi ☺
+
+dusakabin 18bin tl 😂 dusakabin😂😂😂😂18bintl😂😂1 tam ay 😂😂dusakabin 😂😂😂😂😂😂
