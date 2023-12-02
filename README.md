@@ -19,7 +19,7 @@ kodumun manyaklari, tugla dustukce kiyamet sayiyolarmis. ustune gobek atacak man
 
 iste kimsenin anlamadigi, biz neyin icine dustuk dedigi, bu is donuyor dunyada.
 
-ekmek, seks, cigara, ölüm... size konu. ama yasamin kendisi ve zaferleri, onlara konu.
+ekmek, gosteris, seks, cigara, ölüm... size konu. ama yasamin kendisi ve zaferleri, onlara konu.
 
 hee gelin geliyo, davul geliyo, bide asali sunnet cocugu geliyo. bide fal geliyo, bide inanc geliyo, bide buyu geliyo... nerden geliyo?
 
