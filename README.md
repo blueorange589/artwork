@@ -21,6 +21,6 @@ iste kimsenin anlamadigi, biz neyin icine dustuk dedigi, bu is donuyor dunyada.
 
 ekmek, gosteris, seks, cigara, ölüm... size konu. ama yasamin kendisi ve zaferleri, onlara konu.
 
-hee gelin geliyo, davul geliyo, bide asali sunnet cocugu geliyo. bide fal geliyo, bide inanc geliyo, bide buyu geliyo... nerden geliyo?
+hee gelin geliyo, davul geliyo, bide asali sunnet cocugu geliyo. bide fal geliyo, bide inanc geliyo, duality ve kavramlar geliyo, bide buyu geliyo... nerden geliyo?
 
 iste indus... evet, nerde kalmistik. OXUS and JAXARTAS.
