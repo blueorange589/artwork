@@ -19,4 +19,6 @@ kodumun manyaklari, tugla dustukce kiyamet sayiyolarmis. ustune gobek atacak man
 
 iste kimsenin anlamadigi, biz neyin icine dustuk dedigi, bu is donuyor dunyada.
 
+ekmek, seks, cigara, ölüm... size konu. ama yasamin kendisi ve zaferleri, onlara konu.
+
 iste indus... evet, nerde kalmistik. OXUS and JAXARTAS.
