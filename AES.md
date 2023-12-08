@@ -15,3 +15,5 @@ estetik olan insana lezzet verir ve nar gibi satar. baya da multeci ceker 😂
 hergun anlamaya 5 yil once basladim ama estetik yasam yaklasik 20 yillik deneyimliyim. 
 
 bu turklerde olmayan kart idi (ruslarin urettigi araclarda da gorulmez) ve aradaki cakismanin sebebiydi. iyi ki secmisim estetigi.
+
+apartmanlarin ortasina, iki kulesi mavi beyaz bayrakli mustakil dairemi dikicem, sonra apartmanda oturanlarla bir cakismaya daha gircez ☺
