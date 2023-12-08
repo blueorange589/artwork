@@ -12,4 +12,4 @@ estetik olmayan yerde sanki nefes alamazsiniz ve tam tersi.
 
 estetik olan insana lezzet verir ve nar gibi satar. baya da multeci ceker 😂
 
-hergun anlamaya 5 yil once basladim ama estetik yasam yaklasik 20 yillik deneyimliyim. bu turklerde olmayan kart idi (ruslarin urettigi araclarda da bulamazsiniz) ve aradaki cakismanin sebebiydi. iyi ki secmisim estetigi.
+hergun anlamaya 5 yil once basladim ama estetik yasam yaklasik 20 yillik deneyimliyim. bu turklerde olmayan kart idi (ruslarin urettigi araclarda da gorulmez) ve aradaki cakismanin sebebiydi. iyi ki secmisim estetigi.
