@@ -17,3 +17,5 @@ hergun anlamaya 5 yil once basladim ama estetik yasam yaklasik 20 yillik deneyim
 bu turklerde olmayan kart idi (ruslarin urettigi araclarda da gorulmez) ve aradaki cakismanin sebebiydi. iyi ki secmisim estetigi.
 
 apartmanlarin ortasina, iki kulesi mavi beyaz flamali mustakil dairemi dikicem, sonra apartmanda oturanlarla bir cakismaya daha gircez ☺ (gireceĞĞüazz)
+
+insanlar urettiklerinin icinde yasarlar. urettikleri estetige aykiri oldugunda hoslarina gitmeyen bir hayata sahip olurlar.
