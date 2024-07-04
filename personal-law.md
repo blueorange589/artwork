@@ -6,7 +6,7 @@
 
 3. I have not authorized any person, institution or organization to decide in name of myself. Any such claim is a trick to be avoided. In addition to it, same entities can not decide for me in any matter as well.
 
-4. I refuse any kind of relationship with those who breach items mentioned. Any relation can not be established in future.
+4. I refuse any kind of relationship with those who breached items mentioned. Any relation can not be established in future.
 
 
 OZGUR ARSLAN
