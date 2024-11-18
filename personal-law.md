@@ -10,9 +10,9 @@
 
 5. Same people that are defined on item #4 can not use any knowledge or inventions that I am start of.
 
-6. All methods and ways to contact me, else than direct, are not allowed.
+6. All methods and ways to contact me, else than direct/in person, are not allowed.
 
-7. All requests from me, must be approved by me verbally or signed or in action. In case it is my action, the answer can only address the real context. It excludes anything else, such as interpretations, evaluations...etc.
+7. All requests from me, must be approved by me, verbally or signed or in action. In case it is my action, the answer can only address the real context. It excludes anything else, such as interpretations, evaluations...etc.
 
 8. All items are valid for my all lives.
 
