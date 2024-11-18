@@ -12,7 +12,7 @@
 
 6. All methods and ways to contact me, else than direct/in person, are not allowed.
 
-7. All requests from me, must be approved by me, verbally or signed or in action. In case it is my action, the answer can only address the real context. It excludes anything else, such as interpretations, evaluations...etc.
+7. All requests from me, must be approved by me, verbally or signed or in action. In case it is my action, the answer can only address the real context. The answer can not be transformed into any other answer using interpretations, evaluations and similar.
 
 8. All items are valid for my all lives.
 
